@@ -10,4 +10,6 @@ Part #1: https://youtu.be/o-8yBjtXzEo
 
 Part #2: https://youtu.be/cwijbh6UZbA
 
+Support me on Buy me a coffee:
+https://www.buymeacoffee.com/frankliucs
 
